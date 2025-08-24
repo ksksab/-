@@ -4,7 +4,7 @@
 电脑用户按 <b>Ctrl+D</b> 收藏此页，手机可以截图保存。
 
 本月域名列表<br/>
-杏色视频跳转地址： [https://xingse8.life](https://www.xingse8.life)
+杏色视频跳转地址： [https://xingse8.com](https://www.xingse8.com)
 
 杏色视频备用域名1：[https://xingse153.life](https://www.xingse153.life)
 
