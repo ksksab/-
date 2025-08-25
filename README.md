@@ -6,9 +6,11 @@
 本月域名列表<br/>
 杏色视频跳转地址： [https://xingse8.com](https://www.xingse8.com)
 
+杏色视频最新地址： [https://xingse214.life](https://www.xingse214.life)
+
 杏色视频备用域名1：[https://xingse153.life](https://www.xingse153.life)
 
-杏色视频备用域名2：[https://xingse213](https://www.xingse213.life)
+杏色视频备用域名2：[https://xingse154.life](https://www.xingse154.life)
 
 
 发送任意邮件到：xingse30@gmail.com 获取最新地址
